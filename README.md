@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @diana7eater
-- 👀 I’m interested in idk
-- 🌱 I’m currently learning idk
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in helping animals in any way possible
+- 🌱 I’m currently learning how to eat apples.
+- 💞️ I’m looking to collaborate with andreu q.
 - 📫 How to reach me (please don't do this)
 
 <!---
